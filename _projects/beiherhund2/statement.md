@@ -37,7 +37,7 @@ Nadie usa array
 La facu bien lo sabe, y no habrá nada que arriesgar 
 Es una secuela 
 La UNA apostará 
-- Han pensado en Milei para una crisis más 
+Han pensado en Milei para una crisis más 
 Pensé que era el final 
 Pero, mi amigo, ya lo ves 
 Porque aquí vamos otra vez 
@@ -47,33 +47,37 @@ Porque aquí vamos otra vez
 
 Es una secuela 
 ¡Será una vez más!
-- With more games to play
-- And no more yayo cameos
+
+With more games to play
+And no more yayo cameos
+
 Es una secuela 
-- No quiero ser un aguafiestas,
-- Pero esta es la octava secuela de nuestro trabajo original 
+
+No quiero ser un aguafiestas,
+Pero esta es la octava secuela de nuestro trabajo original 
+
 Es una secuela 
 Es bueno intentar
 
 Es cuestión de, un libreto encontrar
 
-- Oh, oh, ¿Que tal si seguimos las ideas de Fricke sobre los nuevos medios y la interactividad, haciendo algo que intente redefinir lo que es ver una obra, y en la que la experiencia de participar sea tan importante como lo que está en la obra?
+Oh, oh, ¿Que tal si seguimos las ideas de Fricke sobre los nuevos medios y la interactividad, haciendo algo que intente redefinir lo que es ver una obra, y en la que la experiencia de participar sea tan importante como lo que está en la obra?
 
 No lo sé, Tina, ¿Alguno tiene una mejor idea?
 
-- ¿Qué tal si dejamos la cátedra y el año que viene nos vamos a otra más fácil?
+¿Qué tal si dejamos la cátedra y el año que viene nos vamos a otra más fácil?
 
 Tentador, ¿Alguien tiene otra idea diferente?
 
-- ¡Ya sé! Podemos hacer una obra basada en los textos de Arns, usando el codigo y al espectador para hacer una obra performativa, donde este tenga que participar activamente si quiere ver al arte.
+¡Ya sé! Podemos hacer una obra basada en los textos de Arns, usando el codigo y al espectador para hacer una obra performativa, donde este tenga que participar activamente si quiere ver al arte.
 
 Sasha, ya hicimos ese chiste hace cuatro diálogos, ¿Alguno más?
 
-- Mit szólnál ahhoz, ha készítenénk egy mély alkotást, amely rólad mint egyénről és a művészettel való kapcsolatodról szól?
+Mit szólnál ahhoz, ha készítenénk egy mély alkotást, amely rólad mint egyénről és a művészettel való kapcsolatodról szól?
 
 A la gente no le gustan las obras en idiomas tan exóticos, Drácula, ¿Otra idea?
 
-- Vange, ¿Qué tal si agarramos el tp1 y solo le ponemos un 2 al lado?
+Vange, ¿Qué tal si agarramos el tp1 y solo le ponemos un 2 al lado?
 
 ¡Es perfecto!
 
@@ -94,15 +98,17 @@ Otra vez!
 
 
 
-- ¡CORTE!
+¡CORTE!
 
-_ Bueno chicos, eso estuvo muy bien. creo que ya tenemos esta toma clavada, vamos a tomar un descanso antes de la siguiente toma…
+Bueno chicos, eso estuvo muy bien. creo que ya tenemos esta toma clavada, vamos a tomar un descanso antes de la siguiente toma…
 
-- ¡Felipe, espera! ¡Te estás olvidando de los créditos!
+¡Felipe, espera! ¡Te estás olvidando de los créditos!
 
-_ Bien recordado Sasha, ¡Muchas gracias a rainbo6003 por dejarnos usar su cover de “Oh! Tengo suerte”! ¡Y todos los derechos de Moonlight Syndrome son de Human Entertainment's (Aunque estaría bien que lo sacaran en occidente)! Listo, con eso ya queda todo hecho…
+Bien recordado Sasha, ¡Muchas gracias a rainbo6003 por dejarnos usar su cover de “Oh! Tengo suerte”! ¡Y todos los derechos de Moonlight Syndrome son de Human Entertainment's (Aunque estaría bien que lo sacaran en occidente)! Listo, con eso ya queda todo hecho…
 
-_¡Ahora, vamos todos! ¡Aún no grabamos la canción sobre qué nos tienen que aprobar con un 10 y el trabajo se entrega mañana!
+¡Ahora, vamos todos! ¡Aún no grabamos la canción sobre qué nos tienen que aprobar con un 10 y el trabajo se entrega mañana!
+
+
 
 **Bibliografía**
 
