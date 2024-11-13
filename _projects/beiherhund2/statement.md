@@ -115,3 +115,5 @@ Bien recordado Sasha, ¡Muchas gracias a rainbo6003 por dejarnos usar su cover d
  FRICKE, Christiane. (1999). “Nuevos Medios”. En “AAVV. Arte de siglo XX. Vol. II. München: Taschen. pp.576-590.
 
  ARNS, Inke. (2005). "El código como acto de habla performativo". En Revista Artnodes, Julio de 2005, ISSN 1695-5951
+
+ Canal de Rainbo6003: https://youtube.com/@rainbo6003?si=bS227UU64CJcjff0
